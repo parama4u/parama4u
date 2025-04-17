@@ -2,7 +2,7 @@
 
 This is Param.
 
-16+ in SaaS. 1+ Building In Public. 
+17+ in SaaS. 
 
 Mostly would build stuff on private,  If something woth sharing, you would be seeing them  on here.
 
